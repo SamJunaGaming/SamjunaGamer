@@ -1,1 +1,1 @@
-# SamjunaGamer
+# SamJunaGamer
